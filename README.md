@@ -1,4 +1,4 @@
-## I'm bluehalooo, and i k
+## I'm bluehalooo, and i am dumb.
 
 ## Programmer Humor
 
